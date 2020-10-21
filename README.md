@@ -1,1 +1,1 @@
-# Patrika-description
+# Patrika-description (e-magazine)
